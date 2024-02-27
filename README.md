@@ -4,6 +4,6 @@ I'm a frontend software engineer with a background as a visual artist, crafting 
 
 I am all about interactive storytelling and love weaving together different skills to bring those stories to life.  Getting to do that with a rad team is even better.
 
-⚡[www.sorayabenson.com](https://www.sorayabenson.com)
+⚡[www.sorayamajdolashrafi.com](https://www.sorayamajdolashrafi.com)
 
-🔮 [linkedin](https://www.linkedin.com/in/soraya-benson)
+🔮 [linkedin](https://www.linkedin.com/in/soraya-majdolashrafi)
